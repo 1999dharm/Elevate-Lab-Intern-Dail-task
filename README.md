@@ -1,1 +1,1 @@
-# Elevate-Lab-Intern-Dail-task
+# Elevate-Lab-Intern-Daily-task
